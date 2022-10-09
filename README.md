@@ -1,2 +1,6 @@
 # CUPHEAD-POR-MARCASMAX
-Cuphead The Delicious Last Course
+Cuphead The Delicious Last Course                
+(*AYUDAME*
+"SIGUIENDO ME EN TIKTOK *@MARCASMAX*"
+EN INSTAGRAM *MARCASMAX_OFFICIAL*
+TWITCH *MARCASMAX*)
